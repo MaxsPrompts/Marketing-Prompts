@@ -13,8 +13,12 @@ Let’s make this journey easier together.
 I hope this helps,
 https://planeeasy.substack.com/
 
+Too much Info? 
 
+My Custom GPT Will help you sort the prompts & skills!
 
+https://chatgpt.com/g/g-sEvM9pj5D-marketing-prompts
+---------------------
 
 Keyword Research: Finding what people search for. More visitors, happier readers.
 
