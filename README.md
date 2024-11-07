@@ -11,8 +11,8 @@ I hope this guide helps you feel a little more confident, a little more capable.
 Let’s make this journey easier together.
 
 I hope this helps,
-https://planeeasy.substack.com/
-
+[https://planeeasy.substack.com/
+](https://open.substack.com/pub/planeeasy/p/how-i-learned-546-digital-marketing?r=41zvgq&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true)
 Too much Info? 
 
 My Custom GPT Will help you sort the prompts & skills!
