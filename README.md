@@ -1,10 +1,7 @@
-# Marketing-Prompts
-A Complete Guide on Digital Marketing Including 546 Individual Skills &amp; 
 
-4368 AI Prompts:
-Prompts are in planeeasy.substack.com.csv
+**Prompts are in planeeasy.substack.com.csv**
 
-Hey! 
+Hey! !
 
 So glad you’re here :)
 I built this guide with 4,368 AI prompts and 546 digital marketing skills because I know firsthand how overwhelming it can be to navigate all this alone. 
@@ -14,7 +11,7 @@ I hope this guide helps you feel a little more confident, a little more capable.
 Let’s make this journey easier together.
 
 I hope this helps,
-[https://planeeasy.substack.com/
+[https://maxberry.substack.com/
 ](https://open.substack.com/pub/planeeasy/p/how-i-learned-546-digital-marketing?r=41zvgq&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true)
 Too much Info? 
 
