@@ -1,6 +1,12 @@
 
 **Prompts are in planeeasy.substack.com.csv**
 
+Too much Info? 
+
+My Custom GPT Will help you sort the prompts & skills!
+
+https://chatgpt.com/g/g-sEvM9pj5D-marketing-prompts
+
 Hey! !
 
 So glad you’re here :)
@@ -14,11 +20,7 @@ I hope this helps,
 
 **FOR MORE PROMPTS**:
 [https://maxberry.substack.com/](https://open.substack.com/pub/planeeasy/p/how-i-learned-546-digital-marketing?r=41zvgq&utm_campaign=post&utm_medium=web&showWelcomeOnShare=true)
-Too much Info? 
 
-My Custom GPT Will help you sort the prompts & skills!
-
-https://chatgpt.com/g/g-sEvM9pj5D-marketing-prompts
 ---------------------
 
 Keyword Research: Finding what people search for. More visitors, happier readers.
